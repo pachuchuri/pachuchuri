@@ -1,8 +1,8 @@
 
-
 <p align="center">
 ݁ ˖Ი𐑼⋆
 </p>
+<img width="1200" height="429" alt="image" src="https://github.com/user-attachments/assets/ccd007ce-b34a-4fe6-ad46-babd451d5869" />
 i do a lot projects and hobbies
 
 im a very paranoid person, please dont attempt to trigger me or anything like that
