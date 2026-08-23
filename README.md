@@ -9,7 +9,7 @@ im a very paranoid person, please dont attempt to trigger me or anything like th
 
 read strawpage for more
 
-full typology: Ti>Ne(INTP) sp/sx6(w5)94 r/L/[U]an axT[W]deg LEFV LII sang-mel 
+full typology: Ti>Ne(INTP) sp/sx6(w5)94 /R/l[U]ei axT[W]deg LEFV LII sang-mel 
 
 <img width="100" height="134" alt="image" src="https://github.com/user-attachments/assets/1aadf3c8-23b0-4e2b-b30e-ca30b0d90bd6" />
  💞 
