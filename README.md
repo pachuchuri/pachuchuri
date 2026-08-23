@@ -4,6 +4,7 @@
 </p>
 <img width="1200" height="429" alt="image" src="https://github.com/user-attachments/assets/ccd007ce-b34a-4fe6-ad46-babd451d5869" />
 i do a lot projects and hobbies ; currently making cotton plushies
+
 im a very paranoid person, please dont attempt to trigger me or anything like that
 
 read strawpage for more
