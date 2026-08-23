@@ -1,8 +1,9 @@
-# zzz
 
-call me kaz or ryel
-however u would prefer, i can go by both
+<p align="center">
+݁ ˖Ი𐑼⋆
+</p>
+i do a lot projects and hobbies
 
-introverted hobbyist, im so badly awkward at holding conversations im so sorry
+im a very paranoid person, please dont attempt to trigger me or anything like that
 
-idk how to use github help me
+read strawpage for more
