@@ -1,3 +1,2 @@
-
-
-full typology: Ti>Ne(INTP) sp/sx6(w5)94 /R/l[U]ei axT[W]deg LEFV LII sang-mel 
+<p align="center" </p> ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+<br> ⤷ “ 𝘐 𝘥𝘰𝘯'𝘵 𝘩𝘢𝘷𝘦 𝘵𝘪𝘮𝘦 𝘧𝘰𝘳 𝘵𝘩𝘪𝘴... 𝘍𝘪𝘳𝘴𝘵, 𝘵𝘩𝘦 𝘭𝘪𝘵𝘵𝘭𝘦 𝘴𝘪𝘴𝘵𝘦𝘳, 𝘢𝘯𝘥 𝘯𝘰𝘸 𝘺𝘰𝘶.  ”
