@@ -26,7 +26,7 @@
 <div align="center"> <details>
 <summary>𝘐𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴</summary>
   
-<br> ``Project Moon``
+``Project Moon``
 ``Touhou``
 ``TUYU``
 
