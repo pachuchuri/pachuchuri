@@ -19,7 +19,6 @@
 <summary>𝘛𝘺𝘱𝘰𝘭𝘰𝘨𝘺</summary>
   
 ``Ti>Ne(INTP) SP/SX6(w5)94 /R/l[U]ei axT[W]deg LEFV LII sang-mel 𓂃🖊 ``
-  
 </div>
 
 </details>
@@ -29,7 +28,6 @@
 ``Project Moon``
 ``Touhou``
 ``TUYU``
-
 </div>
 
  </details>
@@ -42,12 +40,6 @@
 <br> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/84202721-7f9b-478c-a5fe-bc6f17b9e790" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/24e057ac-efaa-47dd-abcc-6e71f36bc690" />
 <br> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <br> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/0b103bba-1dde-41db-93fe-3d1091a91f17" /> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/1419b7fc-f788-477e-bc11-b74d1882053a" /> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/f914435a-90df-45cd-8d73-90b01873f8d7" /> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/856b37a4-2f90-4ec2-8a85-c4967ae4f612" /> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/744b7c85-5c80-43d3-8865-bd15c6f592be" /> <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/1896b8e3-389c-43db-9487-76fab1f0e2aa" />
-
-
-
-
-
-
 </div>
  ⤷ “ 𝘔𝘺 𝘢𝘴𝘵𝘩𝘮𝘢 𝘪𝘴𝘯'𝘵 𝘣𝘢𝘥 𝘵𝘰𝘥𝘢𝘺, 𝘴𝘰 𝘐'𝘭𝘭 𝘴𝘩𝘰𝘸 𝘺𝘰𝘶 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘮𝘢𝘨𝘪𝘤!  ”
    <br><br>
