@@ -7,7 +7,7 @@
 <pre>
   ✎ᝰ. 14 y/o
   ✎ᝰ. Self-preservation/Sexual 6 w 5
-  ✎ᝰ. Whisper to interact : Often offline.
+  ✎ᝰ. Whisper to interact : Often offtab.
   ✎ᝰ. Cuddle + Hide is okay!
   ✎ᝰ. Do not kiss (unless friend)
   ✎ᝰ. Interact with care (unless friend)
