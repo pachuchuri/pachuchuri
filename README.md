@@ -46,5 +46,5 @@
    
   ![](https://komarev.com/ghpvc/?username=pachuchuri&color=8C5D9C&style=flat&label=+CUPS+OF_COFFEE+SERVED+.⋆☕︎˖+:)
 
-[Atabook](https://pachuchuri.atabook.org/)ㅤㅤㅤ[Strawpage in WIP](https://youtu.be/dQw4w9WgXcQ)
+[Atabook](https://pachuchuri.atabook.org/)ㅤㅤㅤ[Strawpage](https://pachuchuri.straw.page/)
 </div>
