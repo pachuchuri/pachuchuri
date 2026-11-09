@@ -18,7 +18,7 @@
 <div align="center"> <details>
 <summary>𝘛𝘺𝘱𝘰𝘭𝘰𝘨𝘺</summary>
   
-``Ti>Ne(INTP) SP/SX6(w5)94 /R/l[U]ei axT[W]deg LEFV LII sang-mel 𓂃🖊 ``
+``Ti>Ne(INTP) SP/SX6(w5)14 /R/l[U]ei axT[W]deg LEFV LII sang-mel 𓂃🖊 ``
 </div>
 
 </details>
